@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Nazrul Islam
+# Hi there 💖 I'm Nazrul Islam
 
 **Software Developer | Multi-Language Programmer | Problem Solver**
 
